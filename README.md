@@ -19,4 +19,4 @@ Ante la problemática observada como empresa llegamos a la conclusión de que la
 ![Copia de Validation Board Template (1)](https://user-images.githubusercontent.com/94004537/152567969-cfba5111-6910-4720-86fd-5c965702e566.png)
 
 
-[Video Baños Secos](https://pip.pypa.io/en/stable/))
+[Video Baños Secos](https://drive.google.com/file/d/1Lvif_PsjHMKi5glUPRMW4V3WI59MbI90/view?usp=sharing)
