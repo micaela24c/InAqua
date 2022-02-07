@@ -1,4 +1,4 @@
-# Emprendimiento ecológico
+# InAqua
 ## Público objetivo: 
 Adultos independientes y familias de distintas clases sociales
 
